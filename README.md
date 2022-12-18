@@ -1,2 +1,2 @@
 https://AlekseiLoboiko.github.io/rsschool-cv/cv
-https://mellifluous-snickerdoodle-bda210.netlify.app/#courses
+https://639f5644fceb142f10a7f960--rainbow-cassata-504526.netlify.app/
